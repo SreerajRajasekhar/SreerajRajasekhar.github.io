@@ -1,2 +1,2 @@
-# Sreeraj Rajasekhar #
-## Game Designer, Programmer ##
+# Sreeraj Rajasekhar 
+## Game Designer, Programmer
