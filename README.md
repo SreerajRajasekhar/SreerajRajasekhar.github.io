@@ -1,4 +1,4 @@
 Sreeraj Rajasekhar
 ==================
-Game Designer, Level Designer and a Programmer
-----------------------------------------------
+
+<br Hi, I'm an Amateur Game Designer, Who Exploring the Unexplored world of Video Games. >
