@@ -1,1 +1,3 @@
-## Game Designer, Programmer
+# Sreeraj Rajasekhar
+
+## Game Designer, Level Designer and a Programmer
